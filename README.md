@@ -1,0 +1,2 @@
+# kolokwium
+#Spryszak Adrian
